@@ -7,3 +7,4 @@ Secondly, the properties to become a strategist and an administrator is quite di
 Last but not least, I will write about the differences and similarities of our career plan. Jinho and I plan to work for different small companies to gain experiences then after a small timespan, we will proceed to get a place in our chosen companies. But Jinho plans to work in responding to customers and developing apps which do not supply the useful skills and knowledge to support him on the way to become a strategist. Different from the route that Jinho chose, I will start on getting a MBA degree related to Database Administration whilst working to support myself.  
 
 hao
+![](
